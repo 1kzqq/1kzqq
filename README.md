@@ -3,6 +3,11 @@
 - 🙌🏻 I like doing handicrafts！
 - 🌱 I’m in the process of learning GitHub!
 - 📫 My E-mail:113B1188@mailst.cjcu.edu.tw
+- 
+- Served as a Class Representative.
+- Worked as a Teaching Assistant for Accounting.
+- Recipient of a Scholarship.
+- Volunteered at the National Intercollegiate Athletic Games.
 
 
 <!---

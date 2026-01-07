@@ -3,7 +3,11 @@
 - 🙌🏻 I like doing handicrafts！
 - 🌱 I’m in the process of learning GitHub!
 - 📫 My E-mail:113B1188@mailst.cjcu.edu.tw
-
+- 🧡💛🤍
+- ☺️Served as a Class Representative.
+- ✏️Worked as a Teaching Assistant for Accounting.
+- 📖Recipient of a Scholarship.
+- 🙋‍♀️Volunteered at the National Intercollegiate Athletic Games.
 
 <!---
 1kzqq/1kzqq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

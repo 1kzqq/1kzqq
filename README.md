@@ -5,7 +5,8 @@
 - 😺I like cat.
 - 🌱 I’m in the process of learning GitHub!
 - 📫 My E-mail:113B1188@mailst.cjcu.edu.tw
-- 😺❤️🐶❤️
+- ❤️🩷🤍
+- 🦄Skilled in layout design and typography. 
 - 🧡💛🤍
 - ☺️Served as a Class Representative.
 - ✏️Worked as a Teaching Assistant for Accounting.

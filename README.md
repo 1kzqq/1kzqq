@@ -2,6 +2,7 @@
 - 🎬 I enjoy watching movies.
 - 🙌🏻 I like doing handicrafts！
 - 🎤I like singing.
+- 😺I like cat.
 - 🌱 I’m in the process of learning GitHub!
 - 📫 My E-mail:113B1188@mailst.cjcu.edu.tw
 - 😺❤️🐶❤️

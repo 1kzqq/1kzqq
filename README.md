@@ -12,6 +12,8 @@
 - ✏️Worked as a Teaching Assistant for Accounting.
 - 📖Recipient of a Scholarship.
 - 🙋‍♀️Volunteered at the National Intercollegiate Athletic Games.
+- 😁😁😁
+- ESG Certification — 2024
 
 <!---
 1kzqq/1kzqq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

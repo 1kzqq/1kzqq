@@ -1,4 +1,5 @@
 - 👋 Hi I'm qian!
+- 😶‍🌫️MBTI: INFP — Introverted, Intuitive, Feeling, Perceiving.
 - 🎬 I enjoy watching movies.
 - 🙌🏻 I like doing handicrafts！
 - 🎤I like singing.

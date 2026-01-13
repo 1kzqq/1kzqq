@@ -1,11 +1,14 @@
-- 👋 Hi I'm qian!
+- 👋Hi I'm qian!
 - 😶‍🌫️MBTI: INFP — Introverted, Intuitive, Feeling, Perceiving.
-- 🎬 I enjoy watching movies.
-- 🙌🏻 I like doing handicrafts！
+- 🎬I enjoy watching movies.
+- 🙌🏻I like doing handicrafts！
 - 🎤I like singing.
 - 😺I like cat.
-- 🌱 I’m in the process of learning GitHub!
-- 📫 My E-mail:113B1188@mailst.cjcu.edu.tw
+- 🌱I’m in the process of learning GitHub!
+- 📫My E-mail:113B1188@mailst.cjcu.edu.tw
+- 
+- 😊My personality😊
+- 
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 
 - 🧡💛🤍

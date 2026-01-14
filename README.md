@@ -8,7 +8,7 @@
 - 📫My E-mail:113B1188@mailst.cjcu.edu.tw
 - 
 - 😊My personality😊
-- 
+- 😁open-minded
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 
 - 🧡💛🤍

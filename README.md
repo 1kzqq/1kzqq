@@ -9,6 +9,7 @@
 - 
 - 😊My personality😊
 - 😁open-minded
+- 😄Responsible
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 
 - 🧡💛🤍

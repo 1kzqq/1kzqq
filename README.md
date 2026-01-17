@@ -6,7 +6,7 @@
 - 😺I like cat.
 - 🌱I’m in the process of learning GitHub!
 - 📫My E-mail:113B1188@mailst.cjcu.edu.tw
-- 
+- 😶‍🌫️
 - 😊My personality😊
 - 😁open-minded
 - 😄Responsible

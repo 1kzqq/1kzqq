@@ -11,6 +11,7 @@
 - 😁open-minded
 - 😄Responsible
 - 😎Conscientious
+- ✏️Quickly calms and centers attention to meet deadlines and solve problems.
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 
 - 🧡💛🤍

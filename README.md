@@ -11,7 +11,6 @@
 - 😁open-minded
 - 😄Responsible
 - 😎Conscientious
-- ✏️Quickly calms and centers attention to meet deadlines and solve problems.
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 
 - 🧡💛🤍
@@ -22,7 +21,7 @@
 - 😁😁😁
 - ESG Certification — 2024
 - 👩‍💻
-- 
+- ✏️Quickly calms and centers attention to meet deadlines and solve problems.
 
 <!---
 1kzqq/1kzqq is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

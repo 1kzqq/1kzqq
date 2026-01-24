@@ -14,9 +14,9 @@
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 
 - 🧡💛🤍
+- 📖Recipient of a Scholarship.
 - ☺️Served as a Class Representative.
 - ✏️Worked as a Teaching Assistant for Accounting.
-- 📖Recipient of a Scholarship.
 - 🙋‍♀️Volunteered at the National Intercollegiate Athletic Games.
 - 😁😁😁
 - ESG Certification — 2024

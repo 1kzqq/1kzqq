@@ -4,8 +4,8 @@
 - 🎤I like singing.
 - 🎬I enjoy watching movies.
 - 🙌🏻I like doing handicrafts！
-- 🌱I’m in the process of learning GitHub!
 - 📫My E-mail:113B1188@mailst.cjcu.edu.tw
+- 🌱I’m in the process of learning GitHub!
 - 😶‍🌫️
 - 😊My personality😊
 - 😁open-minded

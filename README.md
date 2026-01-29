@@ -8,8 +8,8 @@
 - 🌱I’m in the process of learning GitHub!
 - 😶‍🌫️
 - 😊My personality😊
-- 😄Responsible
 - 😁open-minded
+- 😄Responsible
 - 😎Conscientious
 - ❤️🩷🤍
 - 🦄Skilled in layout design and typography. 

@@ -17,7 +17,10 @@
 - 📖Recipient of a Scholarship.
 - ☺️Served as a Class Representative.
 - ✏️Worked as a Teaching Assistant for Accounting.
+- ✈️Served as an Air Transportation Teaching Assistant.
+- 🤯Served as a Civil Law Summary Teaching Assistant.
 - 🙋‍♀️Volunteered at the National Intercollegiate Athletic Games.
+- 👩‍🚒Participated in a drill exercise at Tainan Airport.
 - 😁😁😁
 - ESG Certification — 2024
 - ARES ISO 14067:2018 — 2026

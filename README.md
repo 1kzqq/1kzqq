@@ -20,6 +20,7 @@
 - 🙋‍♀️Volunteered at the National Intercollegiate Athletic Games.
 - 😁😁😁
 - ESG Certification — 2024
+- ARES ISO 14067:2018 — 2026
 - 👩‍💻
 - ✏️Quickly calms and centers attention to meet deadlines and solve problems.
 
